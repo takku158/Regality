@@ -1,1 +1,1 @@
-# Regality
+# Regality.kr
